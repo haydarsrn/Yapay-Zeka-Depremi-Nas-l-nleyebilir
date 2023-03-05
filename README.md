@@ -1,0 +1,1 @@
+# Yapay-Zeka-Depremi-Nas-l-nleyebilir
